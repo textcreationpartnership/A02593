@@ -35,9 +35,17 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Mortalities meditation: or, A description of sinne VVith a definition and plaine setting forth of ma
+
+1. TO THAT COVRTEOVS GENTLEMAN, AND MY much reſpected Friend M. IOHN LOVVE, Iunior, Eſquire; WILLIAM HALL humbly dedicates the Buds and Bloſſomes of theſe is firſt Fruits, wiſhing all Honour during this Life, and after Death Life eternall.
+
+1. To the Courteous and vncourteous Readers.
+
+1. THE AVTHOR TO HIS BOOKE.
+
 #####Body#####
-Mortalities meditation: or, A description of sinne VVith a definition and plaine setting forth of ma
+
+1. Mortalities Meditation, or a Deſcription of Sinne.
+
 **Types of content**
 
   * There are 1156 **verse** lines!
